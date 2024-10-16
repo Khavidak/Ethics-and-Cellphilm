@@ -1,2 +1,2 @@
-# Ethics-and-Cellphilm
+# Ethics&Cellphilm
 Ethics and Cellphilm
